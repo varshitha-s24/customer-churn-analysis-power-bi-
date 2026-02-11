@@ -103,8 +103,8 @@ This dashboard enables business teams to:
 
 ## 📬 Contact
 
-**Author**: Mohan Kumar  
-**Mail**: mohan122000kumar@gmail.com
+**Author**: VARSHITHA S
+**Mail**: varshh2420@gmail.com
 
 ---
 
